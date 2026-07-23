@@ -27,11 +27,11 @@ Below are my official STEAM/Cubesat certificates and music performance archives:
 
 | 🛰️ STEAM & Cubesat Certificates | 🎹 Piano Performance |
 | :---: | :---: |
-| <img src="./WhatsApp Image 2026-07-19 at 10.57.13.jpeg" width="350"> | <img src="./WhatsApp Image 2026-07-19 at 21.56.01.jpeg" width="350"> |
-| <img src="./WhatsApp Image 2026-07-19 at 23.07.06.jpeg" width="350"> | <img src="./WhatsApp Image 2026-07-19 at 21.56.01 (1).jpeg" width="350"> |
-| <img src="./WhatsApp Image 2026-07-19 at 23.07.06 (1).jpeg" width="350"> | <img src="./WhatsApp Image 2026-07-19 at 21.56.01 (2).jpeg" width="350"> |
-| <img src="./WhatsApp Image 2026-07-19 at 23.07.06 (2).jpeg" width="350"> | <img src="./WhatsApp Image 2026-07-19 at 21.56.01 (3).jpeg" width="350"> |
-| <img src="./WhatsApp Image 2026-07-19 at 23.07.06 (3).jpeg" width="350"> | <img src="./WhatsApp Image 2026-07-19 at 23.07.06 (5).jpeg" width="350"> |
+| <img src="WhatsApp%20Image%202026-07-19%20at%2010.57.13.jpeg" width="350"> | <img src="WhatsApp%20Image%202026-07-19%20at%2021.56.01.jpeg" width="350"> |
+| <img src="WhatsApp%20Image%202026-07-19%20at%2023.07.06.jpeg" width="350"> | <img src="WhatsApp%20Image%202026-07-19%20at%2021.56.01%20(1).jpeg" width="350"> |
+| <img src="WhatsApp%20Image%202026-07-19%20at%2023.07.06%20(1).jpeg" width="350"> | <img src="WhatsApp%20Image%202026-07-19%20at%2021.56.01%20(2).jpeg" width="350"> |
+| <img src="WhatsApp%20Image%202026-07-19%20at%2023.07.06%20(2).jpeg" width="350"> | <img src="WhatsApp%20Image%202026-07-19%20at%2021.56.01%20(3).jpeg" width="350"> |
+| <img src="WhatsApp%20Image%202026-07-19%20at%2023.07.06%20(3).jpeg" width="350"> | <img src="WhatsApp%20Image%202026-07-19%20at%2023.07.06%20(5).jpeg" width="350"> |
 
 ---
 
